@@ -1,6 +1,6 @@
 # Samfunn: Sosiale medier
 
-Du skal reflektere over og diskutere statusen for sosiale medier i dag.
+Du skal reflektere over og diskutere sosiale medier i dagens samfunn.
 
 Du skal ta utgangspunkt i noen av de følgende lenkene og temaene:
 
